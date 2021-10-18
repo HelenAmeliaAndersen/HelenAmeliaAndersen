@@ -3,6 +3,7 @@
 - 🌱 I’m currently learning School Subjects, computer, Violin and Chess.
 - 💞️ I’m looking to collaborate on October 30st, 2021
 - 📫 How to reach me ...
+- Don't follow me! I am sick...
 
 <!---
 HelenAmeliaAndersen/HelenAmeliaAndersen is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
