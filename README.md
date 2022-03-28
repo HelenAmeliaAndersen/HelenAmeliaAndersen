@@ -8,4 +8,4 @@ HelenAmeliaAndersen/HelenAmeliaAndersen is a ✨ special ✨ repository because 
 You can click the Preview link to take a look at your changes.
 --->
 I'm  a novelist. I will be just a coder, Philsopher, Chess player, Violinist and a brain doctor and a Phyisic and Astronomy master (I'll be sure 'em)
-I am the left brain 私は左脳です Som ľavý mozog je suis le cerveau gauche
+I am the left brain 私は左脳です Som ľavý mozog je suis le cerveau gauche Я лівий мозок
